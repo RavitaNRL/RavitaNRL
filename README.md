@@ -1,1 +1,1 @@
-[![MasterHead](https://i.postimg.cc/DwfkrKGd/Reza-Hidayat-1.gif)](https://webkumal.com/)
+[![MasterHead]([https://github.com/RavitaNRL/RavitaNRL/blob/master/github.png?raw=true)](https://www.linkedin.com/in/ravita-nurul-asmi/)
